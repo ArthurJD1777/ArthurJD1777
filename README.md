@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @ArthurJD1777
+- 👀 I’m interested in movies and art
